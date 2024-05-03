@@ -1,1 +1,1 @@
-learning app dev and web dev🧑‍💻
+Data science||web development 👩‍💻📚
